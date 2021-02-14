@@ -1,0 +1,1 @@
+# javayla mayın tarlası
